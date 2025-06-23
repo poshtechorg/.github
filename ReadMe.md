@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Us:
 Posh Tech is a community-driven space where we push support, honest reviews, and powerful solutions.
 
 
